@@ -1,3 +1,1 @@
-### Hey there! 👋
-
-- 🔗 [LinkedIn](https://www.linkedin.com/in/david-mcafee/)
+🔗 [LinkedIn](https://www.linkedin.com/in/david-mcafee/)
